@@ -1,0 +1,2 @@
+
+https://uveqjwnzgknsrozvzpdt.supabase.co 
